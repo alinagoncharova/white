@@ -31,7 +31,10 @@ The sun has long since burnt him black.
 
 i
 
-j
+The Journalist surveys the slaughter,
+The best in years without a doubt;
+He pours himself a gin-an-water
+And wonders how it came to about.
 
 The Keeper, when it’s time for luncheon,
 Flings down his charge upon the bed,
